@@ -6,4 +6,4 @@
 
 📫 How to reach me sugavaneshwaran98@gmail.com
 
-👋 Linkedin linkedin.com/in/sugavaneshwaran1998
+👋 Linkedin linkedin.com/in/sugavaneshwaran
